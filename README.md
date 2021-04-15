@@ -1,4 +1,5 @@
-![Header_Banner-01](https://user-images.githubusercontent.com/82566588/114851243-41238400-9dff-11eb-9b6f-d87e03c37587.jpeg)
+![Header Banner](https://user-images.githubusercontent.com/82566588/114863401-4ee00600-9e0d-11eb-9e80-043e131b687d.png)
+
  
 # 🥂│YASHWASTAKEN : 
 - 💭・Hey There! It's me, Yash Agrawal. 
