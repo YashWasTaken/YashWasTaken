@@ -30,7 +30,7 @@
 - 🍭・Discord ID : ```YashWaѕTakєn♡₊#6964```
 
 # ☁│MODMAILS : 
-🌙・If you have any Inquries then feel free to ask me, You can ask me on Instagram or on Discord. I will be there to resolve your issues and to help you out. Also this will help you if you wanna Hire me as your Developer or Graphic Designer. 
+🌙・If you have any Inquires then feel free to ask me, You can ask me on Instagram or on Discord. I will be there to resolve your issues and to help you out. Also, this will help you if you wanna Hire me as your Developer or Graphic Designer. 
 - 🎪・Support Email : yash.modmail@gmail.com
 - 🎪・Instagram : [YashWasTak3n](https://www.instagram.com/yashwastak3n/)
 - 🎪・Discord : ```YashWaѕTakєn♡₊#6964```
